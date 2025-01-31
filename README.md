@@ -28,4 +28,5 @@ U6 is Including;
 And so many more changes it would take too long to list them all; its basically a brand new game!
 
 Join The Discord! : https://discord.gg/aotvr
+
 Be sure to keep up with our future games developments!
